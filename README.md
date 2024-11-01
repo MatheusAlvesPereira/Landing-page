@@ -1,4 +1,4 @@
-# Landing-page html css and javascript.
+# Landing-pages creative free landing pages in html css and javascript.
 
 [Danzzle](https://demos.onepagelove.com/html/dazzle/)
 
