@@ -11,7 +11,7 @@ https://github.com/user-attachments/assets/9718d04e-0015-4115-a596-a1852cb4499b
 
 https://github.com/user-attachments/assets/f81bf2ff-bf2b-4248-bcfc-c4c127de7e36
 
-[Aril](https://preview.cruip.com/april/)
+[April](https://preview.cruip.com/april/)
 
 
 https://github.com/user-attachments/assets/6ff0e332-d642-4667-95cf-7ee049bb78c0
