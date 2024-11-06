@@ -27,3 +27,8 @@ Prism
 https://github.com/user-attachments/assets/efa97044-c66f-4bd8-864c-cc472f01667f
 
 
+[Eliie](https://cruip.com/demos/ellie/)
+
+
+https://github.com/user-attachments/assets/bd2e22c2-4bcd-4208-a0d8-64d0e15a7374
+
